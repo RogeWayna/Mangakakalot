@@ -1,4 +1,3 @@
 # Mangakakalot
-Read Free Mangakakalot
-[Read Free Mangakakalot
-](https://www.google.com "")
+Read Free Mangakakalot online at 
+[mangakakalot](https://freemanga.to/site/mangakakalot "Read Free Mangakakalot")
